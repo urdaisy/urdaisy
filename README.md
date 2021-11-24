@@ -15,8 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 - 😄 icebeauty and urdaisy
-- 🔭 do more
-- 🌱 konw more
-- 🤔 be more
-- ⚡ love u all
+- 🔭 博观而约取
+- 🌱 厚积而薄发
+- ⚡ 不以物喜
+- 🤔 不以己悲
 - 💬 Ask me about ...
