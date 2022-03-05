@@ -14,9 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 😄 icebeauty and urdaisy
+- 😄 urdaisy
 - 🔭 博观而约取
-- 🌱 厚积而薄发
-- ⚡ 不以物喜
-- 🤔 不以己悲
+- 🌱 厚积而薄发 
 - 💬 Ask me about ...
